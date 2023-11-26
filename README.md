@@ -12,7 +12,7 @@
 
 - 📫 How to reach me **kalyankumar1802@gmail.com**
 
-- ⚡ Fun fact **One of my talents is bringing joy to others through laughter**
+- ⚡ Fun fact: **Biotechnologist by day, data wizard by night 🧬💻 #ScienceAndCode**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
