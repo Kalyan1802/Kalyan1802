@@ -12,7 +12,7 @@
 
 - 📫 How to reach me **kalyankumar1802@gmail.com**
 
-- ⚡ Fun fact: **Biotechnologist by day, data wizard by night 🧬💻 #ScienceAndCode**
+- ⚡ Fun fact: **Biotechnologist by day, data wizard by night 🧬💻 
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
